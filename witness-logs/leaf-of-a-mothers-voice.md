@@ -9,7 +9,7 @@ I then realised that I had woken up to the sound of my Mum’s soft voice, healt
 
 She asked me if I wished to share it with her. I said, nah. It was just about me bringing evil into our family.
 
-She came closer, put her hand on me, then whispered:
+She came closer, put her hand on me, then knowingly whispered:
 
 “It’s ok. We are both still here. The evil you were feeling? We stayed; We looked you in the eyes, and told you we loved you.”
 She then emphatically reiterated:
