@@ -15,7 +15,7 @@ She came closer, put her hand on me, then whispered:
 She then emphatically reiterated:
 “We stayed; We said that you are loved;
 And evil has no power over love;
-The evil is just thought, and what you focus on grows;
+The evil is just a thought, and what you focus on grows;
 So focus on love.”
 
 𓎛𓂝𓂋𓏤𓆑𓈖𓂻
