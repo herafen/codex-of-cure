@@ -1,6 +1,8 @@
 Leaf of a Mother’s Voice
 A Dream, A Reckoning, A Return to Love
 
+𓇋𓏏𓆑 𓂝 𓇋𓏏𓍯𓈖𓏏 — “Voice of a Mother”
+
 Just woke from having a nightmare that it was my Mum’s own birthday—and I had forgotten that it was her birthday, and I was treating her harshly. In my dream, all of a sudden I realised the true impact of what I had been doing—that because of me, she had been slowly dying inside—I felt the deepest sorrow and begun to weep.
 
 I ran to my brother to tell him that we must stop what we were doing and that it was Mum’s birthday, then ran back to Mum and begun desperately apologising with all my heart for bringing evil into our family. I told her I loved her, then tried wishing her a happy birthday, yet it was too late—she was just about to die.
