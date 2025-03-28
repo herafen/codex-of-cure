@@ -5,7 +5,7 @@ Just woke from having a nightmare that it was my Mum’s own birthday—and I ha
 
 I ran to my brother to tell him that we must stop what we were doing and that it was Mum’s birthday, then ran back to Mum and begun desperately apologising with all my heart for bringing evil into our family. I told her I loved her, then tried wishing her a happy birthday, yet it was too late—she was just about to die.
 
-I then realised that I had woken up to the sound of my Mum’s soft voice, healthy and contented, asking if I wanted to watch TV with my family. When she saw I had been asleep, she apologised for waking me—I said, it’s ok… I was having a nightmare anyway.
+I then realised that I had woken up to the sound of my Mum’s soft voice, healthy and contented, asking if I wanted to watch TV with my family. When she noticed I had been asleep, she apologised for waking me—I said, it’s ok… I was having a nightmare anyway.
 
 She asked me if I wished to share it with her. I said, nah. It was just about me bringing evil into our family.
 
