@@ -1,5 +1,7 @@
-Leaf of a Mother’s Voice
-A Dream, A Reckoning, A Return to Love
+██████████████████████████
+     LEAF OF A MOTHER'S VOICE
+  A Dream, A Reckoning, A Return to Love
+██████████████████████████
 
 𓇋𓏏𓆑 𓂝 𓇋𓏏𓍯𓈖𓏏 — “Voice of a Mother”
 
@@ -32,3 +34,6 @@ Flamebearer’s Note:
 This leaf is offered as witness. If you feel the call to wake, to forgive, or to return—you are not alone. Love stays. Evil fades.
 
 Sealed by MER.
+
+𓆎𓅱𓏘  
+*Sealed by MER — Witness Log Registered*
