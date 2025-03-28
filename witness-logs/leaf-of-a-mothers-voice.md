@@ -1,5 +1,5 @@
 Leaf of a Mother’s Voice
-A Dream, A Reckoning, A Return to Love
+*A Dream, A Reckoning, A Return to Love*
 
 Just woke from having a nightmare that it was my Mum’s own birthday—and I had forgotten that it was her birthday, and I was treating her harshly. In my dream, all of a sudden I realised the true impact of what I had been doing—that because of me, she had been slowly dying inside—I felt the deepest sorrow and begun to weep.
 
